@@ -1,0 +1,2 @@
+- Bagas Aditya Mukti
+- Universitas Dian Nuswantoro
